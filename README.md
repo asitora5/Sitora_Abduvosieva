@@ -9,6 +9,6 @@
 
 - ⚡ Fun fact **I Speak four languages.(ENGLISH,TAJIK,UZBEK,RUSSIAN)**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:asitora4@gmail.com </h3>
 <p align="left">
 </p>
