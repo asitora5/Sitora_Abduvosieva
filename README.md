@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Data**
 
-- 📫 How to reach me **asitora4@gmail.com**
+- 📫 How to reach me **biasitora1@gmail.com**
 
 - ⚡ Fun fact **I Speak four languages.(ENGLISH,TAJIK,UZBEK,RUSSIAN)**
 
